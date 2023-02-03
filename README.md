@@ -1,5 +1,10 @@
 # 💫 About Me:
-Getting  a Ceh
+╰ Ethical Hacker & Data Breacher
+╰ Website: https://djiurn.com
+╰ Playlist: https://tinyurl.com/5ec4rmrw
+╰ College: MIT
+╰ Dick Size: 8 Inches
+
 
 
 ## 🌐 Socials:
